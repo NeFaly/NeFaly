@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... I know.. im interested in... something...
 - 🌱 I’m currently learning nothing unfortunately
 - 💞️ I’m looking to collaborate on nothing here too
-- 📫 How to reach me why'd you even wanna reach me lol but thats my discord Buggy#0670 if you wanna discuss
+- 📫 How to reach me why'd you even wanna reach me lol but thats my discord Buggy#0670 if you wanna discuss or talk with me about something
 
 <!---
 NeFaly/NeFaly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
